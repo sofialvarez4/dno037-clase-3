@@ -5,3 +5,5 @@ Este quedo fatal:
 ![mi_atacazo_artistico2](https://user-images.githubusercontent.com/86027685/159739225-df9a4233-c4e2-429c-9ff0-c1375a022a62.jpeg)
 otro mais:
 ![mi_atacazo_artistico3](https://user-images.githubusercontent.com/86027685/159740184-e3ea157d-8186-4968-83db-c9280fb92557.jpeg)
+musho lusho
+![mi_atacazo_artistico4](https://user-images.githubusercontent.com/86027685/159741839-b9613b1e-6b53-4b40-85e6-22d086b9e013.jpeg)
